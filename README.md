@@ -1,5 +1,5 @@
 # LaN_LaN
 
-It's not that easy, try a little more :D
+O kadar kolay değil :3
 
 Bakalım ne kadar iyi bir stalk çusun :)
